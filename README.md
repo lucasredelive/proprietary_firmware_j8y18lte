@@ -1,1 +1,0 @@
-# proprietary_firmware_j8y18lte
